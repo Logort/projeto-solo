@@ -1,1 +1,1 @@
-# projeto-solo
+# projeto solo
